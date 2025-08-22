@@ -1,1 +1,1 @@
-https://store.steampowered.com/digitalgiftcards/
+[Steam gift card](https://store.steampowered.com/digitalgiftcards/)
