@@ -1,1 +1,3 @@
-[Steam gift card](https://store.steampowered.com/digitalgiftcards/)
+- [Steam gift card](https://store.steampowered.com/digitalgiftcards/)
+- [Nintendo gift card](https://www.nintendo.com/us/retail-offers/nintendo-eshop-cards/)
+- Cold hard cash
